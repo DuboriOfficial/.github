@@ -17,4 +17,4 @@
 ### 📬 Get in Touch
 - Website: [dubori.in](https://dubori.in)
 - Email: [hello@dubori.in](mailto:hello@dubori.in)
-- WhatsApp: [+91 89183 93112](https://wa.me/918918393112)
+- WhatsApp: [+91 93951 24865](https://wa.me/919395124865)
